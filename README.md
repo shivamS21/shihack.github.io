@@ -1,6 +1,6 @@
 #           ____________ADVERTISEMENT FOR AUDI_____________________
 
-###      :metal:YOOOOOO-audi :metal:
+###      : metal : YOOOOOO-audi : metal :
 
 
 ![Alt Text](http://www.car-brand-names.com/wp-content/uploads/2015/03/Audi-Logo.png)
